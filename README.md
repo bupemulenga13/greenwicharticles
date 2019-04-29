@@ -1,3 +1,3 @@
-# greenwicharticles
+# Greenwich Articles
 
 Link to Screencasts: 
